@@ -10,14 +10,16 @@
 * 和非常棒的同学们一起合作，看到模型落地业务，看到算法在发扬光大
 * 2020年新冠爆发就没法回国出差，就在家里办公，和同学们在钉钉上沟通，真得感谢你们，一起努力，一定有收获
 * 留下一张工牌上的照片，纪念这过去的数年 <img width="268" alt="Screen Shot 2021-05-28 at 4 51 53 PM" src="https://user-images.githubusercontent.com/3145135/120051336-06ebfb80-bfd5-11eb-90fb-222cb2e6102d.png">
+* 留下最后一天的记录，![Screen Shot 2021-05-28 at 4 59 54 PM](https://user-images.githubusercontent.com/3145135/120051612-220b3b00-bfd6-11eb-8532-f1900946685c.png)
 
 
+感谢蚂蚁！感谢亲爱的蚂蚁同学！
 
 蚂蚁同学加油！
 
-留下如下的歌，纪录我的感受：
+感受如歌：
 
-蚂蚁司歌[“心的起点”](谁能找到这首歌的链接）
+蚂蚁司歌[“心的起点”]
 
 [“追梦的蚂蚁”](https://www.youtube.com/watch?v=nmxVl7-thgw)
 
