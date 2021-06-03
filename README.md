@@ -77,8 +77,8 @@
 
 # 联系方式
 
-个人邮箱：ksyao at hotmail . com
-微信：<img width="381" alt="Screen Shot 2021-06-03 at 4 37 49 PM" src="https://user-images.githubusercontent.com/3145135/120725104-0ac2c680-c48a-11eb-8ba1-d9105a560373.png">
+* 个人邮箱：ksyao at hotmail . com
+* 微信：<img width="381" alt="Screen Shot 2021-06-03 at 4 37 49 PM" src="https://user-images.githubusercontent.com/3145135/120725104-0ac2c680-c48a-11eb-8ba1-d9105a560373.png">
 
 
 保持联系！后会有期！
