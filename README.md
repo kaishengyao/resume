@@ -19,6 +19,7 @@
 ## 那些相片
 
 * 留下一张工牌上的照片，纪念这过去的数年 <img width="268" alt="Screen Shot 2021-05-28 at 4 51 53 PM" src="https://user-images.githubusercontent.com/3145135/120051336-06ebfb80-bfd5-11eb-90fb-222cb2e6102d.png">
+* 和伙伴们的合影![image](https://user-images.githubusercontent.com/3145135/120597048-65601200-c3f9-11eb-9d6a-e968c216c05f.png)![image](https://user-images.githubusercontent.com/3145135/120597111-79a40f00-c3f9-11eb-9661-2abed13a946a.png)
 * 留下最后一天的记录，![Screen Shot 2021-05-28 at 4 59 54 PM](https://user-images.githubusercontent.com/3145135/120051612-220b3b00-bfd6-11eb-8532-f1900946685c.png)
 
 ## 曾经的伙伴
