@@ -30,7 +30,7 @@
 ## 那些相片
 
 * 留下一张工牌上的照片，纪念这过去的数年 <img width="268" alt="Screen Shot 2021-05-28 at 4 51 53 PM" src="https://user-images.githubusercontent.com/3145135/120051336-06ebfb80-bfd5-11eb-90fb-222cb2e6102d.png">
-* 留下最后一天的记录<img width="1221" alt="Screen Shot 2021-06-03 at 3 17 38 PM" src="https://user-images.githubusercontent.com/3145135/120719339-f1684d00-c47e-11eb-80f4-8bea5c407bb6.png">
+* 留下最后一天的记录![Screen Shot 2021-06-04 at 9 39 20 AM](https://user-images.githubusercontent.com/3145135/120835110-c16d8800-c518-11eb-8377-822abe2300a4.png)
 * 和伙伴们的合影![image](https://user-images.githubusercontent.com/3145135/120597048-65601200-c3f9-11eb-9d6a-e968c216c05f.png)![image](https://user-images.githubusercontent.com/3145135/120597111-79a40f00-c3f9-11eb-9661-2abed13a946a.png)
 
 ## 蚂蚁的伙伴们
